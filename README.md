@@ -82,87 +82,87 @@ So I was up at 2 AM the other night, just completely sick of seeing the same stu
 
 This list is the result of that. It's a total mess, kind of all over the place, and definitely not complete. But it's real. No affiliate links, no sponsored junk. Just a bunch of sites I stumbled upon that seemed interesting for one reason or another.
 
-I found a ton of stuff in Morocco, for example. Some of it is super niche, like for actual medical clinics—I saw one for a urology clinic, `https://urologuerabat.com/?p=shop`, and another for a maternity hospital, `https://cliniquelesorangers.ma/shop`. Probably not what you're shopping for, but it's wild that they have online shops. Then there's more normal stuff like `https://rabatcity.ma/shop`, which just has general city-life products.
+I found a ton of stuff in Morocco, for example. Some of it is super niche, like for actual medical clinics—I saw one for a urology clinic, [https://urologuerabat.com/?p=shop](https://urologuerabat.com/?p=shop), and another for a maternity hospital, [https://cliniquelesorangers.ma/shop](https://cliniquelesorangers.ma/shop). Probably not what you're shopping for, but it's wild that they have online shops. Then there's more normal stuff like [https://rabatcity.ma/shop](https://rabatcity.ma/shop), which just has general city-life products.
 
-And it's not just services. If you're into eco-friendly stuff, `https://olir-shop.de/shop` in Germany looked pretty cool. Or `https://ecolo-mgp.fr/shop` out of France. It feels like every country has its own little green movement going on.
+And it's not just services. If you're into eco-friendly stuff, [https://olir-shop.de/shop](https://olir-shop.de/shop) in Germany looked pretty cool. Or [https://ecolo-mgp.fr/shop](https://ecolo-mgp.fr/shop) out of France. It feels like every country has its own little green movement going on.
 
-Honestly, some of my favorites are the art-related ones. This Italian photographer, `https://www.antonioaragonrenuncio.com/shop`, has prints that are just incredible. Your walls would look amazing. And then on the other end of the spectrum, there's a UK site called `https://bobeats.co.uk/shop` with music and art-themed stuff.
+Honestly, some of my favorites are the art-related ones. This Italian photographer, [https://www.antonioaragonrenuncio.com/shop](https://www.antonioaragonrenuncio.com/shop), has prints that are just incredible. Your walls would look amazing. And then on the other end of the spectrum, there's a UK site called [https://bobeats.co.uk/shop](https://bobeats.co.uk/shop) with music and art-themed stuff.
 
-Oh, and a heads-up. A lot of these are small, independent places. So yeah, shipping can be a whole thing. Buying camping gear from `https://campmates.uk/shop` in the UK is gonna be way different than ordering artisanal goods from `https://gemi.co.id/shop` in Indonesia if you're in the States. Always check how you can pay and what the shipping situation is before you fall in love with something.
+Oh, and a heads-up. A lot of these are small, independent places. So yeah, shipping can be a whole thing. Buying camping gear from [https://campmates.uk/shop](https://campmates.uk/shop) in the UK is gonna be way different than ordering artisanal goods from [https://gemi.co.id/shop](https://gemi.co.id/shop) in Indonesia if you're in the States. Always check how you can pay and what the shipping situation is before you fall in love with something.
 
-The list just gets weirder, too. I found a bunch of community and spiritual sites that all seem to be connected, like `https://proutresearch-news.com/newshop` and `https://anandamarga.fi/newshop`. Then there are all these small business services popping up in Africa—apps from Ghana at `https://www.233apps.com/newshop` and even a skating club shop `https://www.sakumonoskating.club/newshop`.
+The list just gets weirder, too. I found a bunch of community and spiritual sites that all seem to be connected, like [https://proutresearch-news.com/newshop](https://proutresearch-news.com/newshop) and [https://anandamarga.fi/newshop](https://anandamarga.fi/newshop). Then there are all these small business services popping up in Africa—apps from Ghana at [https://www.233apps.com/newshop](https://www.233apps.com/newshop) and even a skating club shop [https://www.sakumonoskating.club/newshop](https://www.sakumonoskating.club/newshop).
 
 Here's a bunch more if you just want to click around and see what's out there. It's a mix of everything from fashion to hardware to... well, just look.
 
-In Italy, there's `https://majorasrl.it/?p=shop`. Over in India, `https://ayurvedasahihai.com/?p=shop` for health stuff. Belgium has `https://byzaf.be/shop` for fashion. If you need PC repair kits in the UK, `https://pchandyandy.co.uk/shop` is a thing. A company in South Africa, `https://www.relevantmarketing.co.za/shop`, sells marketing services right from their site. Even found a hotel in Turkey with a shop: `https://www.hotelmeram.com.tr/shop`. And a limo service in DC, `http://www.dcluxurylimo.com/newshop`. See? It's all over the place.
+In Italy, there's [https://majorasrl.it/?p=shop](https://majorasrl.it/?p=shop). Over in India, [https://ayurvedasahihai.com/?p=shop](https://ayurvedasahihai.com/?p=shop) for health stuff. Belgium has [https://byzaf.be/shop](https://byzaf.be/shop) for fashion. If you need PC repair kits in the UK, [https://pchandyandy.co.uk/shop](https://pchandyandy.co.uk/shop) is a thing. A company in South Africa, [https://www.relevantmarketing.co.za/shop](https://www.relevantmarketing.co.za/shop), sells marketing services right from their site. Even found a hotel in Turkey with a shop: [https://www.hotelmeram.com.tr/shop](https://www.hotelmeram.com.tr/shop). And a limo service in DC, [http://www.dcluxurylimo.com/newshop](http://www.dcluxurylimo.com/newshop). See? It's all over the place.
 
 Here's the rest of my messy list. Have fun, don't blame me if you end up buying something weird.
 
-`https://sodicap.ma/shop`
-`https://cliniquenationsunies.com/shop`
-`https://dialysemabella.com/shop`
-`https://alcastello-pizzeria.de/shop`
-`https://20fit.id/shop`
-`https://www.leadergame.fr/shop`
-`http://miwebhosting.com.mx/shop`
-`https://upnmda.edu.mx/?p=shop`
-`https://bnnoticiastv.com/shop`
-`https://www.rotarypinerolo.it/shop`
-`https://chetanrajfilms.com/?p=shop`
-`http://ayurcentre.com/?p=shop`
-`https://aaticd.co.za/shop`
-`https://thetriagecaresolutions.co.uk/shop`
-`https://council-exchange.org.uk/webshop`
-`https://dubsquad.uk/shop`
-`https://www.foodpoverty.co.uk/shop`
-`https://foodpoverty.org.uk/shop`
-`https://site48.co.uk/shop`
-`https://tenantspower.com/shop`
-`https://v-dubz.com/webshop`
-`https://vimage.co.uk/webshop`
-`https://akyolbalik.com/?p=shop`
-`https://hri.abuad.edu.ng/shop`
-`https://sayvana.com/shop`
-`https://worthywellnessinitiative.org/?webshop`
-`https://www.bcab.bi/shop`
-`https://escortprivada.com/?p=shop`
-`https://amps-unity-news.com/newshop`
-`https://amurt-amurtel.eu/newshop`
-`https://berlinsectornews.eu/newshop`
-`https://our-amnews.com/newshop`
-`https://pcap-neighbours.com/newshop`
-`https://sthlm-region.com/newshop`
-`https://tuamps-news.com/newshop`
-`http://billproapp.com.ng/newshop`
-`https://blessingzfarmz.com/newshop`
-`https://www.lctworldcorp.com/newshop`
-`https://www.akwaabafinefoods.com/newshop`
-`https://insightinns.com/shop`
-`https://vtechhub.com/shop`
-`https://k8cc.blue/?p=shop`
-`https://globalethicsprize.org/?p=shop`
-`https://boatingyachtservice.com/shop`
-`http://nikolaqyuon118461.com/shop`
-`https://bmempirehospital.com/general-surgery/`
-`https://www.kopinfotech.com/shop`
-`https://bpimpexlogistics.com/shop`
-`https://nocheestelar.org/shop`
-`https://www.tioty.com/shop`
-`https://virajhimalayanhomestay.com/shop`
-`https://pmfglobalventures.com/shop`
-`https://ordertakingsystem.bcbtechcenter.com/shop`
-`https://pursefit.com/shop`
-`https://www.aodes.com/?p=shop`
-`https://mebeli.info/shop`
-`http://limonetworkonline.com/newshop`
-`http://dclimonetwork.com/newshop`
-`https://www.absolutebibletruth.com/newshop`
-`https://www.abtuniversity.net/newshop`
-`https://codesnuff.com/newshop`
-`http://lanuevaprofesion.net/newshop`
-`https://reparacionde-computadoras.com/newshop`
-`https://braysoakslandscape.com/newshop`
-`https://websiteshouston.com/newshop`
+[https://sodicap.ma/shop](https://sodicap.ma/shop)
+[https://cliniquenationsunies.com/shop](https://cliniquenationsunies.com/shop)
+[https://dialysemabella.com/shop](https://dialysemabella.com/shop)
+[https://alcastello-pizzeria.de/shop](https://alcastello-pizzeria.de/shop)
+[https://20fit.id/shop](https://20fit.id/shop)
+[https://www.leadergame.fr/shop](https://www.leadergame.fr/shop)
+[http://miwebhosting.com.mx/shop](http://miwebhosting.com.mx/shop)
+[https://upnmda.edu.mx/?p=shop](https://upnmda.edu.mx/?p=shop)
+[https://bnnoticiastv.com/shop](https://bnnoticiastv.com/shop)
+[https://www.rotarypinerolo.it/shop](https://www.rotarypinerolo.it/shop)
+[https://chetanrajfilms.com/?p=shop](https://chetanrajfilms.com/?p=shop)
+[http://ayurcentre.com/?p=shop](http://ayurcentre.com/?p=shop)
+[https://aaticd.co.za/shop](https://aaticd.co.za/shop)
+[https://thetriagecaresolutions.co.uk/shop](https://thetriagecaresolutions.co.uk/shop)
+[https://council-exchange.org.uk/webshop](https://council-exchange.org.uk/webshop)
+[https://dubsquad.uk/shop](https://dubsquad.uk/shop)
+[https://www.foodpoverty.co.uk/shop](https://www.foodpoverty.co.uk/shop)
+[https://foodpoverty.org.uk/shop](https://foodpoverty.org.uk/shop)
+[https://site48.co.uk/shop](https://site48.co.uk/shop)
+[https://tenantspower.com/shop](https://tenantspower.com/shop)
+[https://v-dubz.com/webshop](https://v-dubz.com/webshop)
+[https://vimage.co.uk/webshop](https://vimage.co.uk/webshop)
+[https://akyolbalik.com/?p=shop](https://akyolbalik.com/?p=shop)
+[https://hri.abuad.edu.ng/shop](https://hri.abuad.edu.ng/shop)
+[https://sayvana.com/shop](https://sayvana.com/shop)
+[https://worthywellnessinitiative.org/?webshop](https://worthywellnessinitiative.org/?webshop)
+[https://www.bcab.bi/shop](https://www.bcab.bi/shop)
+[https://escortprivada.com/?p=shop](https://escortprivada.com/?p=shop)
+[https://amps-unity-news.com/newshop](https://amps-unity-news.com/newshop)
+[https://amurt-amurtel.eu/newshop](https://amurt-amurtel.eu/newshop)
+[https://berlinsectornews.eu/newshop](https://berlinsectornews.eu/newshop)
+[https://our-amnews.com/newshop](https://our-amnews.com/newshop)
+[https://pcap-neighbours.com/newshop](https://pcap-neighbours.com/newshop)
+[https://sthlm-region.com/newshop](https://sthlm-region.com/newshop)
+[https://tuamps-news.com/newshop](https://tuamps-news.com/newshop)
+[http://billproapp.com.ng/newshop](http://billproapp.com.ng/newshop)
+[https://blessingzfarmz.com/newshop](https://blessingzfarmz.com/newshop)
+[https://www.lctworldcorp.com/newshop](https://www.lctworldcorp.com/newshop)
+[https://www.akwaabafinefoods.com/newshop](https://www.akwaabafinefoods.com/newshop)
+[https://insightinns.com/shop](https://insightinns.com/shop)
+[https://vtechhub.com/shop](https://vtechhub.com/shop)
+[https://k8cc.blue/?p=shop](https://k8cc.blue/?p=shop)
+[https://globalethicsprize.org/?p=shop](https://globalethicsprize.org/?p=shop)
+[https://boatingyachtservice.com/shop](https://boatingyachtservice.com/shop)
+[http://nikolaqyuon118461.com/shop](http://nikolaqyuon118461.com/shop)
+[https://bmempirehospital.com/general-surgery/](https://bmempirehospital.com/general-surgery/)
+[https://www.kopinfotech.com/shop](https://www.kopinfotech.com/shop)
+[https://bpimpexlogistics.com/shop](https://bpimpexlogistics.com/shop)
+[https://nocheestelar.org/shop](https://nocheestelar.org/shop)
+[https://www.tioty.com/shop](https://www.tioty.com/shop)
+[https://virajhimalayanhomestay.com/shop](https://virajhimalayanhomestay.com/shop)
+[https://pmfglobalventures.com/shop](https://pmfglobalventures.com/shop)
+[https://ordertakingsystem.bcbtechcenter.com/shop](https://ordertakingsystem.bcbtechcenter.com/shop)
+[https://pursefit.com/shop](https://pursefit.com/shop)
+[https://www.aodes.com/?p=shop](https://www.aodes.com/?p=shop)
+[https://mebeli.info/shop](https://mebeli.info/shop)
+[http://limonetworkonline.com/newshop](http://limonetworkonline.com/newshop)
+[http://dclimonetwork.com/newshop](http://dclimonetwork.com/newshop)
+[https://www.absolutebibletruth.com/newshop](https://www.absolutebibletruth.com/newshop)
+[https://www.abtuniversity.net/newshop](https://www.abtuniversity.net/newshop)
+[https://codesnuff.com/newshop](https://codesnuff.com/newshop)
+[http://lanuevaprofesion.net/newshop](http://lanuevaprofesion.net/newshop)
+[https://reparacionde-computadoras.com/newshop](https://reparacionde-computadoras.com/newshop)
+[https://braysoakslandscape.com/newshop](https://braysoakslandscape.com/newshop)
+[https://websiteshouston.com/newshop](https://websiteshouston.com/newshop)
 
 Anyway, that's what I've got so far. My browser history is a disaster now, but hopefully you find something cool in this mess.
 
